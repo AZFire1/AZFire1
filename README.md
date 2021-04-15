@@ -5,6 +5,4 @@
 - 👯 I’m looking to collaborate on **school**
 - 🤔 I’m looking for help with **school**
 - 💬 Ask me about **school**
-- 📫 How to reach me: **school**
-- 😄 Pronouns: **school**
-- ⚡ Fun fact: **school**
+- 📫 How to reach me: **school :EYES:**
